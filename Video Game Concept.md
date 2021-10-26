@@ -30,10 +30,12 @@ https://thumbs.gfycat.com/JaggedWelldocumentedGemsbok-max-1mb.gif
 
    - Using navigation such as going through areas; thus navigating using movement such as walking, climbing, jumping in order to explore.
 
+   - https://rectifygaming.com/wp-content/uploads/2020/03/Ori-Blind-forest-platforming-gif.gif
+
    - The player is offered a lot of control over the actions that the character performs within the game.[^1]
 
    - Puzzles can be made centered around the moving mechanics. 
-
+   
    - Settings tend to be vertically exaggerated with much uneven terrain that the player can leap up to or fall off of.
    
      https://pa1.narvii.com/6608/f8e69420e196a8b9559c5d884b11cb92159205bc_hq.gif
