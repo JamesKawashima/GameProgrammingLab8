@@ -33,6 +33,8 @@ Metroidvania games are a subgenre of Action-Adventure platformer games, named af
    - Puzzles can be made centered around the moving mechanics. 
 
    - Settings tend to be vertically exaggerated with much uneven terrain that the player can leap up to or fall off of.
+   
+     https://pa1.narvii.com/6608/f8e69420e196a8b9559c5d884b11cb92159205bc_hq.gif
 
 
 
