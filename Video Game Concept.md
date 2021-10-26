@@ -19,6 +19,8 @@
 
 Metroidvania games are a subgenre of Action-Adventure platformer games, named after its two first well-known franchises, *[Metroid](https://en.wikipedia.org/wiki/Metroid)* and *[Castlevania](https://en.wikipedia.org/wiki/Castlevania)*.
 
+https://thumbs.gfycat.com/JaggedWelldocumentedGemsbok-max-1mb.gif
+
 1. Metroidvania:
    - Features large interconnected world maps the player can explore, but access to parts of the world is limited by doors or other obstacles that can only be opened after the player has acquired special tools, weapons or abilities within the game.
    - Acquiring such improvements also aids the player in defeating more difficult enemies and locating shortcuts and secret areas, and often includes retracing one's steps across the map.
