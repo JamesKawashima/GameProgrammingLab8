@@ -106,7 +106,7 @@ https://thumbs.gfycat.com/JaggedWelldocumentedGemsbok-max-1mb.gif
 
 ## People
 
-- Some of my best friends for being obsessed with mushrooms.
+- Some of my best friends for being obsessed with the mushroom aesthetic.
 
   
 
